@@ -6,23 +6,23 @@
 
 ## 🔗 最新入口（建议收藏）
 
-- 🌐 主站地址：[911blw.com](https://911blw.com)
-- 🚪 备用入口：[911bla.com](https://911bla.com)
-- 🛰️ 免翻入口：[hljcg15.com](https://hljcg15.com)
+- 🌐 主站地址：911blw.com
+- 🚪 备用入口：911bla.com
+- 🛰️ 免翻入口：hljcg16.com
 
 ---
 
 ## 📮 联系我们
 
 - 获取最新地址请发送任意内容至：
-  - [911blcgw@gmail.com](mailto:911blcgw@gmail.com)
+  - 911blcgw@gmail.com
 
 ---
 
 ## 📢 官方社群
 
-- Twitter：[@911bl22](https://twitter.com/911bl22)
-- Telegram：[@bl_911_co](https://t.me/bl_911_co)
+- Twitter：@911bl22
+- Telegram：@bl_911_co
 
 ---
 
