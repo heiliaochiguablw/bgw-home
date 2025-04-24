@@ -22,7 +22,7 @@
 ## 📢 官方社群
 
 - Twitter：[@911bl22](https://twitter.com/911bl22)
-- Telegram：<加入链接>（需翻墙）
+- Telegram：[@bl_911_co](https://t.me/bl_911_co)
 
 ---
 
