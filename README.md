@@ -8,7 +8,7 @@
 
 - 🌐 主站地址：https://911blw.com
 - 🚪 备用入口：https://911bla.com
-- 🛰️ 免翻入口：https://911cg9.com
+- 🛰️ 免翻入口：https://911cg11.com
 - 📱 最新APP下载链接：https://fb0.wxgkzws.cc/
 
 ---
@@ -22,7 +22,7 @@
 
 ## 📢 官方社群
 
-- Twitter：@911bl22
+- Twitter：@zhaopian007
 - Telegram：@bl_911_co
 
 ---
