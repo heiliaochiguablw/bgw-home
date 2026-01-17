@@ -8,8 +8,8 @@
 
 - 🌐 主站地址：https://911blw.com
 - 🚪 备用入口：https://911bla.com
-- 🛰️ 免翻入口：https://911cg21.com
-- 📱 最新APP下载链接：https://fb0.etmnymsp.com/
+- 🛰️ 免翻入口：https://911cg22.com
+- 📱 最新APP下载链接：https://fb0.vpiensfh.cc/
 
 ---
 
